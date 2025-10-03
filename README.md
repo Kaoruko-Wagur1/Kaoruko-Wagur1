@@ -36,6 +36,6 @@
 
 ---
 
-📫 Связаться со мной:
-email: kaoruko22.07waguri@gmail.com
+📫 Связаться со мной:  
+email: kaoruko22.07waguri@gmail.com  
 telegram: @Kaoruko_Waguri123
